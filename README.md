@@ -268,6 +268,8 @@ For support, please contact:
 ---
 
 **Drishti-Vani** - Making education accessible through the power of voice and AI. 🌟
-#   A M D  
- #   A M D  
+#   A M D 
+ 
+ #   A M D 
+ 
  
